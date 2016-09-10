@@ -46,7 +46,7 @@ In a span of n weeks. In general, we will try to keep a breakneck pace (since ev
 * Questions >> answers
 * Challenges should approach the ideal of the kōan and provoke "great doubt".
 * But not great enough to require doubting for over an hour -- we're still students after all!
-* 
+
 ## Getting Help
 The DELTA Maker Community group (As of this term) meets on Tuesdays, Thursdays and on Facebook. If you have any questions, feel free to ask on our group chat, or post on the FB page.  
 
