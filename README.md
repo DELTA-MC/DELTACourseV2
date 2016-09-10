@@ -32,7 +32,7 @@ Lastly, there will be talks (the non-boring ones, I guarantee it) with different
 ## Do I have to pay for this?
 The community is non-profit and although I have paid workshops that you may want to attend that aren't affiliated to this group at all, you won't be charged any money! That also means any project you will want to work on would be out of your own pockets. 
 
-Why? It's simple. We have a vision. The community isn't all about building cool stuff. We're here to set our sights on self-improvement, creating a lasting influence for generations to come, and to give back to our country when the time comes! It's a bonus that you'll get to meet different kinds of people that I'll introduce you to from time to time and hopefully you can realize your dreams through them! 
+Why don't I ask people to pay? It's simple. We have a vision. Like we talked about, the community isn't all about building cool stuff. We're here to set our sights on self-improvement, creating a lasting influence for generations to come, and to give back to our country when the time comes! It's a bonus that you'll get to meet different kinds of people that I'll introduce you to from time to time and hopefully you can realize your dreams through them! 
 
 ## Any formal commitments? 
 Absolutely not. You may drop in and out of a lecture setup anytime you want. Projects will be posted on the page and if you're interested on working on it, you can go! If you don't, that's fine too. **Fair warning** though, some lessons are interconnected and you might have a hard time catching up if you skip on a lot of them. People in the community would gladly help you though. I'm sure. 
