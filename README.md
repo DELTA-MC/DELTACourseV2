@@ -15,7 +15,8 @@ This is the community GIT page with all the resources. Basically, we want to go 
 ![Meme](https://camo.githubusercontent.com/d979c4d16ab5e348e7cce527a80b1cbdc0fd7cb9/687474703a2f2f73322e717569636b6d656d652e636f6d2f696d672f61662f616638333633353538303531306464383666623363666638386565303833656461363630656261643335376639636632666463346163303663326536306565332e6a7067)
 
 To this:
-![enter image description here](https://s-media-cache-ak0.pinimg.com/236x/2a/82/de/2a82de3b0d3380244455f90cc7d1c2a1.jpg) 
+
+![Coffee](https://s-media-cache-ak0.pinimg.com/236x/2a/82/de/2a82de3b0d3380244455f90cc7d1c2a1.jpg) 
 
 *You get the point.*
 
