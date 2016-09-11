@@ -4,6 +4,7 @@ Before you start to delve into the contents of this git, make sure you've been a
 
 As for the rest of you, read on. Here's the general outline of what we discussed, and some additional details. According to you guys, most of you are available on Fridays, Saturdays and Sundays online for the Skype sessions (in that order). 
 
+-Russ M.
 
 ----------
 
